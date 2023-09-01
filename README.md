@@ -8,6 +8,5 @@
 ### Wekulo Fiona Abigael (Me)
 ### Igadwa Debi Teloori
 ### Mwangi Enoch Babu
-### Muthiani Mbithi Emmanuel
 ### Mwangi Samuel Karanja
 
